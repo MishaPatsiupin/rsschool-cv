@@ -1,4 +1,9 @@
-# Patsiupin Mikhail
-## Student of the IT specialty
+|## Patsiupin Mikhail|
+------------------------------------
+|###### Student of the IT specialty|
 
-![E-mail](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.ionos.co.uk%2Fdigitalguide%2Fe-mail%2F&psig=AOvVaw0C7IS1IOajExmUpyfXQrgF&ust=1687887136743000&source=images&cd=vfe&ved=0CBEQjRxqFwoTCODE5dy74f8CFQAAAAAdAAAAABAE) 
+|<img src="https://www.nidirect.gov.uk/sites/default/files/styles/nigov_full_620_x1/public/images/email_logo.jpg?itok=ifUhNgCT" width="15" height="" /> [misha.bears.minsk@gmail.com](misha.bears.minsk@gmail.com)  <img src="https://w7.pngwing.com/pngs/468/969/png-transparent-phone-call-logo-sketch-telephone-mobile-phones-computer-icons-logo-telephone-miscellaneous-text-hand.png" width="15" height="" /> +37529*******|
+----------------
+
+
+---
